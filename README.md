@@ -1,1 +1,0 @@
-# jimmy-fara.github.io
